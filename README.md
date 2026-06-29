@@ -6,7 +6,7 @@
    $\color{#646831}{\text{   ~       Plz interact with me first. Or I just wont speak THANKS  ♡    ~  }}$
 
   
-<img width="352" height="381" alt="image" src="https://github.com/user-attachments/assets/32e08fff-a9d3-4777-808d-d8b26d71afd3" />
+<img width="250" height="266" alt="image" src="https://github.com/user-attachments/assets/d40f48e1-a1c4-4f7f-8d1a-f6e7fad553f0" />
 
 
 [Guns.lol](https://guns.lol/2ugurugeto) ִ -  [新book⠀](https://2uguruget.atabook.org/) ִ- [Carrd](https://2ugurugeto.carrd.co/) ִ- [Tiktok](https://www.tiktok.com/@2ugurugeto) -  [Spage](https://2ugurugeto.straw.page/) -  [Prn](https://en.pronouns.page/@Suguruu_Geto)  
