@@ -32,6 +32,9 @@
    $\color{#2e5866}{\text{   ~   ♡   ᴿᵃᵐᵉⁿ      , ~    ᴸⁱˡʸ    ♡   ~}}$
    
 <div align="center">
+
+ 
+   $\color{#2e5866}{\text{   ~   ♡  ᴬᵐᵇᵉʳ    ,     ᴸᵉⁿ    ,     ᵏᵒⁱ   ♡   ~}}$
   
 [♡𝒲𝒾𝒻𝑒♡](https://github.com/piercingveil) ִ-  [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://github.com/piercingveil)
 
