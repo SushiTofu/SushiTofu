@@ -56,7 +56,7 @@
 $\color{#2e5866}{\text{   I dont talk much unless you peak my intest.  }}$
 
   
- $\color{#2e5866}{\text{   I such at making friends now... }}$
+ $\color{#2e5866}{\text{   I suck at making friends now... but Zuu got me like 4 new ones , Len , Koy , Amber and Vel ! }}$
 
 
  $\color{#2e5866}{\text{   I'm taken by someone i really adore and love , zuu :3  }}$
