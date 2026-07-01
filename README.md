@@ -64,6 +64,11 @@ $\color{#2e5866}{\text{   I dont talk much unless you peak my intest.  }}$
 
  $\color{#2e5866}{\text{   I'm taken by someone i really adore and love , zuu :3  }}$
 
+
  $\color{#2e5866}{\text{   Please don't interact with me if you are like.... 19+ and 11-}}$
 
+ 
+ <div align="center">
+
+<img width="485" height="273" alt="image" src="https://github.com/user-attachments/assets/239c4112-6e9d-4fdc-80f8-3d71fffd118f" />
 
