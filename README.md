@@ -70,5 +70,6 @@ $\color{#2e5866}{\text{   I dont talk much unless you peak my intest.  }}$
  
  <div align="center">
 
-<img width="485" height="273" alt="image" src="https://github.com/user-attachments/assets/239c4112-6e9d-4fdc-80f8-3d71fffd118f" />
+<img width="199" height="273" alt="image" src="https://github.com/user-attachments/assets/d9369b1f-0141-40da-8b21-ebb0e26519f2" />
+
 
