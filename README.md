@@ -15,7 +15,7 @@
 
 
 
-[Guns.lol](https://guns.lol/2ugurugeto) ִ -  [新book⠀](https://2uguruget.atabook.org/) ִ- [Carrd](https://2ugurugeto.carrd.co/) ִ- [Tiktok](https://www.tiktok.com/@2ugurugeto) -  [Spage](https://2ugurugeto.straw.page/) -  [Prn](https://en.pronouns.page/@Suguruu_Geto)  
+[Guns.lol](https://guns.lol/2ugurugeto) ִ -  [新book⠀](https://2uguruget.atabook.org/) ִ- [Carrd](https://2ugurugeto.carrd.co/) ִ- [Tiktok](https://www.tiktok.com/@geto_sugurus) -  [Spage](https://2ugurugeto.straw.page/) -  [Prn](https://en.pronouns.page/@Suguruu_Geto)  
 
 
 <div align="center">
