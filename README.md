@@ -51,7 +51,7 @@
    $\color{#2e5866}{\text{   ~  ᴹᵒᶜʰⁱ    ,    ᴿᵃᵐᵉⁿ  ~ }}$
 
 
-<img width="97" height="80" alt="image" src="https://github.com/user-attachments/assets/e01fe500-bcc8-447b-a66d-22cb4761f045" />
+
 
 <details>
   <summary> $\color{#2e5866}{\text{ stuff about me  }}$ </summary>
