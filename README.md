@@ -69,14 +69,6 @@ $\color{#2e5866}{\text{   I dont talk much unless you peak my intest.  }}$
 
  $\color{#2e5866}{\text{   Please don't interact with me if you are like.... 19+ and 11-}}$
 
- 
- <div align="center">
-<img width="130" height="144" alt="image" src="https://github.com/user-attachments/assets/91379363-42b4-453e-bde6-fec84b8556a3" /> <img width="121" height="139" alt="image" src="https://github.com/user-attachments/assets/b3d299ae-fa04-4ff7-9213-fec74c34d11f" /> <img width="126" height="144" alt="image" src="https://github.com/user-attachments/assets/87f0c161-913f-488c-b55d-c7fa599fd953" /> <img width="116" height="142" alt="image" src="https://github.com/user-attachments/assets/15555276-661e-4e94-8c8a-6b77f6d2548d" /> <img width="127" height="145" alt="image" src="https://github.com/user-attachments/assets/f6609c72-75dd-4123-b25f-8a474dc39f86" /> <img width="127" height="146" alt="image" src="https://github.com/user-attachments/assets/29b4897e-d9ec-411f-bfa7-c0af7ee820e0" /> <img width="124" height="142" alt="image" src="https://github.com/user-attachments/assets/5a1161bd-33d5-4001-8ae7-80b1c585c8f0" /> <img width="121" height="140" alt="image" src="https://github.com/user-attachments/assets/57671f99-9497-4943-9033-dc3a12a263db" /> <img width="121" height="145" alt="image" src="https://github.com/user-attachments/assets/f12260d1-1f43-4b7f-ad52-5d30bf2fad81" />
-
-
-
-Im so rich! trust!
-
 
 
 
