@@ -7,7 +7,9 @@
 
   
 
-<img width="244" height="241" alt="image" src="https://github.com/user-attachments/assets/2c4b4725-ade2-4830-8069-47e559c9ca85" /> <img width="288" height="210" alt="image" src="https://github.com/user-attachments/assets/b749e864-1f1a-4327-a718-f8c9a7f7fa5c" /> <img width="268" height="241" alt="image" src="https://github.com/user-attachments/assets/a9d42d75-1828-41ba-9450-2bf1d00aed64" />
+<img width="245" height="271" alt="image" src="https://github.com/user-attachments/assets/35ccb639-33e1-4779-8d9c-38549afe481d" />
+
+
 
 
 🇮​ ​🇪​​🇦​​🇹​ ​🇿​​🇺​​🇺​❜​🇸​ ​🇱​​🇮​​🇰​​🇪​ ​🇾​​🇴​​🇺​    $\color{#2e5866}{\text{ ᴵ ᵗʰⁱⁿᵏ ⁱ ˡᵒᵛᵉ ʸᵒᵘ, ˢᵒ ʷʰᵃᵗ ᵃᵐ ᴵ ˢᵒ ᵃᶠʳᵃⁱᵈ ᵒᶠ? :3  }}$
