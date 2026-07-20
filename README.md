@@ -52,7 +52,9 @@
 
    $\color{#2e5866}{\text{   ~  ᴹᵒᶜʰⁱ    ,    ᴿᵃᵐᵉⁿ  ~ }}$
 
+   $\color{#2e5866}{\text{   ~   ♡  we r stinky <3 ♡   ~}}$
 
+<img width="280" height="199" alt="image" src="https://github.com/user-attachments/assets/d0440487-9e2b-4031-bda7-7ad7372fda98" />
 
 
 <details>
