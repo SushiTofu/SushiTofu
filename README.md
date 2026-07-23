@@ -1,6 +1,6 @@
 <div align="center"> 
   
-   $\color{#978ba1}{\text{   ~   ♡    ᵗʸ ˡᵒᵏⁱ  ᶠᵒʳ ᵍⁱᵗʰᵘᵇ ⁱⁿˢᵖᵒ  ♡    ~  }}$
+
 
    $\color{#978ba1}{\text{   ~   ♡   if you aren't a close friend     ~  }}$
    $\color{#978ba1}{\text{   ~       Plz interact with me first. Or I just wont speak THANKS  ♡    ~  }}$
