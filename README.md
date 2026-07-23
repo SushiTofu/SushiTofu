@@ -6,8 +6,7 @@
    $\color{#646831}{\text{   ~       Plz interact with me first. Or I just wont speak THANKS  ♡    ~  }}$
 
   
-
-<img width="245" height="271" alt="image" src="https://github.com/user-attachments/assets/35ccb639-33e1-4779-8d9c-38549afe481d" />
+<img width="221" height="161" alt="image" src="https://github.com/user-attachments/assets/6586a221-2bb1-4cc7-a61c-9f059de2be22" />
 
 
 
