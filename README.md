@@ -3,7 +3,7 @@
 
 
    $\color{#978ba1}{\text{   ~   ♡   if you aren't a close friend     ~  }}$
-   $\color{#978ba1}{\text{   ~       Plz interact with me first. Or I just wont speak THANKS  ♡    ~  }}$
+   $\color{#806a92}{\text{   ~       Plz interact with me first.    ~  }}$  $\color{#a068ad}{\text{   ~     Or I just wont speak THANKS  ♡    ~  }}$
 
   
 <img width="221" height="161" alt="image" src="https://github.com/user-attachments/assets/6586a221-2bb1-4cc7-a61c-9f059de2be22" />
