@@ -1,6 +1,6 @@
 <p align="center">
 
-<img width="1412" height="451" alt="image" src="https://github.com/user-attachments/assets/0cec94ae-5b5a-4ff0-9aaa-90e4b5f4539b" />
+<img width="1412" height="451" alt="image" src="https://github.com/user-attachments/assets/6b3ee459-35a2-4b1b-8b7c-0f803864a19e" />
 
 <p align="right">
 <img width="304" height="277" alt="image" src="https://github.com/user-attachments/assets/19c10997-7874-4d02-b263-4c36c8a06575" />
@@ -22,13 +22,16 @@
 
 <p align ="center">  
 <p align ="center">
- ${{\color{#fac194} ૮꒰}}$ 
+ ${{\color{#7b465a} ૮꒰}}$ 
    <a href="https://2uguruget.atabook.org/">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
- ${{\color{#f9f0b1} .☽༊˚ }}$
+ ${{\color{#b8728e} .☽༊˚ }}$
    <a href="https://guns.lol/2ugurugeto">𝘎𝘶𝘯𝘴.𝘓𝘰𝘭</a>
- ${{\color{#f9f0b1} .☽༊˚ }}$
+ ${{\color{#bf889f} .☽༊˚ }}$
   <a href="https://www.tiktok.com/@geto_sugurus">𝘛𝘪𝘬𝘛𝘰𝘬</a>
-  ${{\color{#fac194}꒱ა }}$ 
+  ${{\color{#dbbdc9}☽༊˚ }}$ 
+   ${{\color{#fff0fa} .☽༊˚ }}$
+  <a href="https://https://x.com/Suguru_Getos">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
+  ${{\color{#fff0fa}꒱ა }}$ 
 </p>
 
 <p align="left">
