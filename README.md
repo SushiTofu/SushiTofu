@@ -17,3 +17,5 @@
   ${{\color{#fff0fa}꒱ა }}$ 
 </p>
 
+<p align ="center">  
+<img width="447" height="408" alt="image" src="https://github.com/user-attachments/assets/f0774efd-247d-4d26-95a3-8e9bfd125d38" />
