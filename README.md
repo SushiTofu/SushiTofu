@@ -1,3 +1,5 @@
+<p align ="center">  
+  ${{\color{#7b465a} Slowly }}$  ${{\color{#7b465a} not }}$  ${{\color{#7b465a }playing }}$ ${{\color{#7b465a} anymore}}$ 
 
 
 <p align ="center">  
