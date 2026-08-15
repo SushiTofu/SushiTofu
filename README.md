@@ -1,8 +1,8 @@
 <p align ="center"> 
 <img width="1030" height="385" alt="image" src="https://github.com/user-attachments/assets/612659cf-2ce2-4a82-8577-ef53ed7d3cf5" />
 
-  
-  ${{\color{#7b465a} Slowly }}$  ${{\color{#7b465a} not }}$  ${{\color{#7b465a }playing }}$ ${{\color{#7b465a} anymore}}$ 
+<p align ="center"> 
+${{\color{#C2CCC9} Tofu }}$  ${{\color{#99B6B3} eats }}$  ${{\color{#749DA1}dirt }}$ ${{\color{#547C8B} :3}}$ 
 
 
 <p align ="center">  
