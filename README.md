@@ -1,4 +1,7 @@
-<p align ="center">  
+<p align ="center"> 
+<img width="1030" height="385" alt="image" src="https://github.com/user-attachments/assets/612659cf-2ce2-4a82-8577-ef53ed7d3cf5" />
+
+  
   ${{\color{#7b465a} Slowly }}$  ${{\color{#7b465a} not }}$  ${{\color{#7b465a }playing }}$ ${{\color{#7b465a} anymore}}$ 
 
 
@@ -16,6 +19,3 @@
   <a href="https://https://x.com/Suguru_Getos">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
   ${{\color{#fff0fa}꒱ა }}$ 
 </p>
-
-<p align ="center">  
-<img width="1200" height="376" alt="image" src="https://github.com/user-attachments/assets/1321a07f-c1dd-48d4-8b81-04e3da1b0461" />
