@@ -50,6 +50,8 @@
   
 <img width="939" height="461" alt="image" src="https://github.com/user-attachments/assets/9ab7f73e-1990-4556-8ee1-53efbe17070d" />
 
+https://github.com/FictionalLover
+
  <p align ="center"> 
  ${{\color{#678198} ty }}$ 
-   <a href="https://github.com/pt-friendships">@pt-friendships</a>  ${{\color{#c9cfdb} for }}$ ${{\color{#678198} putting }}$ ${{\color{#2d525f} my }}$ ${{\color{#c9cfdb} friend}}$ ${{\color{#2d525f} and }}$  ${{\color{#678198} I }}$ ${{\color{#2d525f} on}}$ ${{\color{#c9cfdb} there<3 }}$ 
+   <a href="https://github.com/pt-friendships">@pt-friendships</a>  ${{\color{#c9cfdb} for }}$ ${{\color{#678198} putting }}$  <a href="https://github.com/FictionalLover"> Rei </a> ${{\color{#2d525f} and }}$  ${{\color{#678198} I }}$ ${{\color{#2d525f} on}}$ ${{\color{#c9cfdb} there<3 }}$ 
