@@ -50,7 +50,6 @@
   
 <img width="939" height="461" alt="image" src="https://github.com/user-attachments/assets/9ab7f73e-1990-4556-8ee1-53efbe17070d" />
 
-https://github.com/FictionalLover
 
  <p align ="center"> 
  ${{\color{#678198} ty }}$ 
