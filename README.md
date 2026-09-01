@@ -2,6 +2,10 @@
 <img width="939" height="301" alt="image" src="https://github.com/user-attachments/assets/7ae7df19-59fc-4796-a7c1-b1a5f21ddebf" />
 
 <p align="center">
+<img width="748" height="124" alt="image" src="https://github.com/user-attachments/assets/2eebb475-f592-44bf-9953-a39dbfdf07cd" />
+
+
+<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316x3ee2a73zalu7xvgh2gde5jxa&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316x3ee2a73zalu7xvgh2gde5jxa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
   </a>
